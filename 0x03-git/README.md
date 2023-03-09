@@ -1,0 +1,1 @@
+stenght and ease
